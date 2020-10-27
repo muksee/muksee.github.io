@@ -1,3 +1,1 @@
-# muksee.github.io
-
-# Too Lazy, Not Read Yet
+Too Lazy, Not Read Yet
